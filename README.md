@@ -1,0 +1,1 @@
+# Bad-Business-Deserted-Storages-Map
